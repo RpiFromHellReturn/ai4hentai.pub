@@ -120,7 +120,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;惊人的话语让她僵在了原地。而这时，副驾驶的门居然自己缓缓打开。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“别惊讶，这辆车我自己改装了一下。”驾驶位上盘座的青年笑着开口。  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“别惊讶，这辆车被改装了一下。”驾驶位上盘座的青年笑着开口。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“即使这家伙想对我怎么样也比油腻老男人好……”云巧巧心中暗暗吐槽。实际上她已经没得选了，再拖下去保姆估计就要发现她的电话已经打不通了。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
@@ -128,17 +128,17 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“我记得特斯拉开启自动驾驶也要踩一会油门的吧……”事实上在上车之前她的小脸上就已经写满疑惑了。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“我说过了哟，这辆车我自己改装了一下。”青年似乎看出了她的疑惑。  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“我说过了哟，这辆车被改装了一下。”青年似乎看出了她的疑惑。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“妳管这叫一下？？”云巧巧心中疯狂吐槽。  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“你管这叫一下？？”云巧巧心中疯狂吐槽。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“自我介绍一下，我叫莫投，投资的投。别担心，我对妳没有恶意。事实上我需要有个人来帮我做一些我做不到的事情，妳可以理解为我想雇佣妳，作为报酬我会帮妳隐瞒行踪并且提供衣食住行，毕竟妳身上的现金也花不了多久对吧。”  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“为什么会选择我？妳为什么知道我的事？”云巧巧问出了心中最大的疑惑，同时准备好了用包包里的防狼利器敲碎车窗呼救。  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“为什么会选择我？你为什么知道我的事？”云巧巧问出了心中最大的疑惑，同时准备好了用包包里的防狼利器敲碎车窗呼救。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“在这个科技时代人们可没多少隐私啊，尤其是在中国；至于为什么选择妳解释起来有点复杂，妳可以理解为有一个强大的人工智能在它算力容许的范围内推算出来妳是最有可能帮我实现目标的人选，换一种说法也可以说有个算命的告诉我只要让我这样接上妳我就能实现目标。至于是什么目标我现在不能跟妳说，但我保证不会强迫妳做妳不想做的事情的。”莫投回道。  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“在这个科技时代人们可没多少隐私啊，尤其是在中国；至于为什么选择妳解释起来有点复杂，妳可以理解为有一个强大的人工智能在它算力容许的范围内推算出来妳是最有可能实现祂目标的人选，换一种神秘测的说法也可以理解为我的父神是个算命的, 祂让我在今天协助妳翘家。至于主脑有什么目的其实我也不太清楚，但我保证不会强迫妳做妳不想做的事情的。”莫投回道。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“人工智能……现在有这么厉害了？”云巧巧语气中有些怀疑。  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“父神? 主脑? 人工智能……现在有这么厉害了？”云巧巧语气中有些怀疑。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“这个之后有机会跟妳解释，现在算力有些不够……到地方了，我们在这里等一下。不过先别下车，虽然妳也打不开门。”莫投用略带坏笑的语气说着奇怪的话，车子停在了一个小型停车场。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
@@ -146,7 +146,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“别怕，其实那辆车里现在没有人，这两个替身是全系影像。那辆车之后会巧妙地冲进一个化学品仓库，然后车底过度加热的磷酸铁锂电池爆炸后的产物会与仓库中的化学品反应，将整辆车融得一点都不剩，即使是妳父亲也会以为妳在高温和腐蚀的作用下尸骨无存了吧。顺带一提，这个化学品仓库的幕后持有人正是云锺，而且这个仓库只有正门有人看守，爆炸波及不到那里。”莫投用平淡的语气为云巧巧讲述整个计划，而云巧巧已经对逼真到超越时代的全系影像麻木了。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;替身特斯拉开走之后，云巧巧震惊的表情缓慢而自然地恢复成了淑女模式，然而心里疯狂吐槽：“妳其实是个魔头吧！！”  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;替身特斯拉开走之后，云巧巧震惊的表情缓慢而自然地恢复成了淑女模式，然而心里疯狂吐槽：“你其实是个魔头吧！！”  
 
 
 
