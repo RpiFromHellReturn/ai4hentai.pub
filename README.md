@@ -132,7 +132,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“你管这叫一下？？”云巧巧心中疯狂吐槽。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“自我介绍一下，我叫莫投，投资的投。别担心，我对妳没有恶意。事实上我需要有个人来帮我做一些我做不到的事情，妳可以理解为我想雇佣妳，作为报酬我会帮妳隐瞒行踪并且提供衣食住行，毕竟妳身上的现金也花不了多久对吧。”  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“自我介绍一下，我叫莫投，投资的投。别担心，我对妳没有恶意。就我个人而言我只是需要有个人来帮我做一些我不想做或做不到的事情, 比如把生菜洗干净丢到榨汁机里制备蔬菜汁之类的, 我想这对从小被母亲培养成淑女的你应该是没有难度的吧; 妳可以理解为我愿意雇佣妳，作为报酬我会帮妳掩饰行踪并提供衣食住行，毕竟妳身上的现金也花不了多久对吧。”  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“为什么会选择我？你为什么知道我的事？”云巧巧问出了心中最大的疑惑，同时准备好了用包包里的防狼利器敲碎车窗呼救。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
