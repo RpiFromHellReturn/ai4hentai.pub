@@ -19,7 +19,7 @@
 <br/>
 <br/>
 
-### 序章0&nbsp;&nbsp;悲催的天外来客
+## 序章0&nbsp;&nbsp;悲催的天外来客
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;地球的大气层外，一颗“彗星”在宇宙中悠哉地划过。虽然看起来像彗星，但它其实是一座飞船。飞船的主人只有一个，而且事实上，整艘飞船就是祂身体的一部分。  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
@@ -44,7 +44,7 @@
 <br/>
 <br/>
 
-### 序章1&nbsp;&nbsp;为了复仇不惜出卖自己仅剩的一切的少年
+## 序章1&nbsp;&nbsp;为了复仇不惜出卖自己仅剩的一切的少年
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;在青海省的某家医院，一个看起来20岁的青年正身处医院的太平间，跪在妹妹的遗体旁，泪水滚落在他由于被殴打而显得破破烂烂的黑色衬衫上。他的身体不停颤抖，痛哭失声：“小芽，哥没用。没办法为你报仇……”  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
@@ -100,7 +100,7 @@
 <br/>
   
   
-### 第一章&nbsp;&nbsp;离家出走的lolita少女
+## 第一章&nbsp;&nbsp;离家出走的lolita少女
 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
